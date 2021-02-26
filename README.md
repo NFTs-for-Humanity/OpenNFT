@@ -31,4 +31,4 @@ nfts4humanity@gmail.com
 
 Instagram: @belinox_
 
-Clubhouse: @belinox**
+Clubhouse: @belinox
