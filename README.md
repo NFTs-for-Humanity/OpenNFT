@@ -26,4 +26,5 @@ To discuss these ideas you can find me at:
 Bernardo Lino de Oliveira
 bernardo.lino.oliveira@gmail.com
 Instagram: @belinox_
+
 Clubhouse: @belinox
