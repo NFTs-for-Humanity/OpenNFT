@@ -39,11 +39,12 @@ that charity could buy the tokens associated to that artwork, and the money
 would go directly and entirely to the charity.
 
 This new technology is able to transform any resource available to humanity into a commodity.
-As it will be regulated in a free market, therefore it will attract speculators.
+Since the world volume of transactions involved in donations is over 400 billion dollars annually and this platform is highly encrypted, all transactions can be made with extremely low risks of fraud. Morover, all donors will be gifted with artwork from artists that believe in the same causes as them.
+Therefore, there is absolutely no reason not to do at least a large part of these donations through the NFT platform.
 
 This could create a market for contributions and a cascade effect of goodwill. As
 more people contribute and their friends donate, their tokens become more
-valuable, like in any free market. This new technology is able to transform any resource available to humanity into a commodity.
+valuable, like in any free market that is growing. This new technology is able to transform any resource available to humanity into a commodity.
 As these commodities will be traded in a free market it will attract speculators, willing to buy and trade donations in an open market.
 The more microtransactions involved in this system, the more
 royalties will be generated, and the more money will go to the charities and
@@ -55,6 +56,8 @@ assume that a donation market like this would slowly but continuously grow over
 time. This would mean that the earlier you donate, the more money you can
 make. It would be the same as investing in humanity. That is a complete utopia
 that NFTs can bring to reality!
+
+NFTs are a new technology that allows humanity to turn any resource that has any intrinsic value in it and trade it in a free market where there are people willing to buy those commodities and people willing to speculate over these commodities.
 
 This is the vision, the goal and the dream of the NFTs for Humanity project and
 we here invite any human being on the planet to contribute to make this dream
