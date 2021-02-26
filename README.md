@@ -25,6 +25,7 @@ This is the vision, the goal and the dream of the NFTs for Humanity project and 
 To discuss these ideas you can find me at:
 Bernardo Lino de Oliveira
 bernardo.lino.oliveira@gmail.com
+
 Instagram: @belinox_
 
 Clubhouse: @belinox
