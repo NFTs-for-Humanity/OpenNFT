@@ -38,13 +38,17 @@ contribute a painting to a charity of his choosing. Anyone that wishes to help
 that charity could buy the tokens associated to that artwork, and the money
 would go directly and entirely to the charity.
 
+This new technology is able to transform any resource available to humanity into a commodity.
+As it will be regulated in a free market, therefore it will attract speculators.
+
 This could create a market for contributions and a cascade effect of goodwill. As
 more people contribute and their friends donate, their tokens become more
-valuable, like in any free market. As in any other free market, there will of
-course be greedy people willing to speculate for pure profit. But that is actually a
-wonderful thing! The more microtransactions involved in this system, the more
+valuable, like in any free market. This new technology is able to transform any resource available to humanity into a commodity.
+As these commodities will be traded in a free market it will attract speculators, willing to buy and trade donations in an open market.
+The more microtransactions involved in this system, the more
 royalties will be generated, and the more money will go to the charities and
 even back to whoever made the original contribution in the first place.
+This market will follow patterns similar to other cryptocurrencies and form aggresive bubbles that will be able to raise vast amounts of resources to charity.
 
 We truly believe that there are still selfless and generous people out there, so I
 assume that a donation market like this would slowly but continuously grow over
