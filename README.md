@@ -1,4 +1,8 @@
-NFT4H - NFTs for Humanity
+NFTs for Humanity
+Bernardo Lino de Oliveira
+IG: @belinox_
+CH: @belinox
+
 
 NFTs are a new technology that will have a profound impact in how people collaborate, problem solve and do communitary work.
 They provide the possibility to create a token to represent anything completely abstract, or even real, and freely trade them.
