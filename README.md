@@ -1,12 +1,5 @@
 NFTs for Humanity
 
-Bernardo Lino de Oliveira
-
-IG: @belinox_
-
-CH: @belinox
-
-
 NFTs are a new technology that will have a profound impact in how people collaborate, problem solve and do communitary work.
 They provide the possibility to create a token to represent anything completely abstract, or even real, and freely trade them.
 All sorts of virtual contracts can be associated to them; but where this technology really shines and brings new opportunities is in its ability to trace back ownership all the way from the current state back to its creation.
@@ -26,3 +19,10 @@ As I truly believe that there are still at least few purely autruistic people ou
 That is a complete utopia that NFTs can bring to reality!
 
 This is the vision, the goal and the dream of the NFTs for Humanity project and I here invite any human being on the planet to contribute to make this dream come true.
+
+
+To discuss these ideas you can find me at:
+Bernardo Lino de Oliveira
+bernardo.lino.oliveira@gmail.com
+Instagram: @belinox_
+Clubhouse: @belinox
