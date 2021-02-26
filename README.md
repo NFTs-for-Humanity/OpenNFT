@@ -21,11 +21,14 @@ That is a complete utopia that NFTs can bring to reality!
 
 This is the vision, the goal and the dream of the NFTs for Humanity project and I here invite any human being on the planet to contribute to make this dream come true.
 
+Bernardo Lino de Oliveira
+
+
 
 To discuss these ideas you can find me at:
-Bernardo Lino de Oliveira
-bernardo.lino.oliveira@gmail.com
+
+nfts4humanity@gmail.com
 
 Instagram: @belinox_
 
-Clubhouse: @belinox
+Clubhouse: @belinox**
