@@ -59,6 +59,8 @@ that NFTs can bring to reality!
 
 NFTs are a new technology that allows humanity to turn any resource that has any intrinsic value in it and trade it in a free market where there are people willing to buy those commodities and people willing to speculate over these commodities.
 
+This is a platform from humanity to humanity, therefore, every human on the planet can help us build it and at the same time any human being in the planet can benefit from it.
+
 This is the vision, the goal and the dream of the NFTs for Humanity project and
 we here invite any human being on the planet to contribute to make this dream
 come true.
