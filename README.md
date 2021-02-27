@@ -71,6 +71,8 @@ To discuss these ideas you can find me at:
 
 nfts4humanity@gmail.com
 
+Instagram: nfts4humanity
+
 Instagram: @belinox_
 
 Clubhouse: @belinox
